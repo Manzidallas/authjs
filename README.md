@@ -1,3 +1,3 @@
 # authjs
 
-http://dallas.rf.gd/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
+http://dallas.rf.gd/githubKBkurU1vFP_4e9gs<github_pat_11A4L6ATA0cxN2ZWHyVA6b_IU>vpBMduruFn6w1HzU<bSvN7X9Jw08qLrnVhOebZwScx8zN8Yd3Xj8YjaL7q3TAM3EQR73HOzeHR>yOmQZ53GDU3Zw7BWZaF
